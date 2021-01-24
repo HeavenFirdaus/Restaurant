@@ -1,2 +1,2 @@
 # Restaurant
-Jangan Lupa Kasih Stars Ya :)
+Jangan Lupa Kasih Bintang Ya :)
